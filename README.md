@@ -10,6 +10,8 @@ It might be hard to believe - but we are just humans who want to help people. By
 
 [<img src='https://imgur.com/FepCy7V.png' width='300'>](https://www.youtube.com/watch?v=gq0QwnF0iFY "Killer Mike on school")
 
+(link ^ to Killer Mike's thoughts on school) Help us to nominate people for our scholarship programs.
+
 [Our site](https://perpetual.education) should explain it all.
 
 
